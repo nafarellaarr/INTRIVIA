@@ -3,7 +3,7 @@
 ## Identitas Diri 
 | Nama Lengkap                    | NIM           | Program Studi    | Cluster|
 |---------------------------------|---------------|------------------|--------|
-Mochamad Rayhan Fazriel Syaripudin|265150201111003|Teknik Informatika|20      |
+Nafarella Alleazahra Risnanthea|265150207111061|Teknik Informatika|15      |
 
 ## Kesan Pesan Intrivia Sejauh Ini 
 Menurut saya, INTRIVIA 2026 menjadi pengalaman baru yang menarik sebagai mahasiswa baru Universitas Brawijaya. 
