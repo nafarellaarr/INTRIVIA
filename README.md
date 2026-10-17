@@ -11,3 +11,6 @@ Melalui kegiatan ini, saya bisa mengenal lingkungan kampus, mendapatkan informas
 
 ## Kesan pesan Cluster 15 Sejauh Ini
 saya merasa sangat senang telah menjadi bagian dari cluster 20 yang di mentori oleh Kak Nafil dan Kak Valen. Kegiatan bersama-sama menjadi kesempatan saya untuk saling mengenal satu sama lain, bekerja sama, dan membangun relasi dengan mahasiswa baru lainnya. Semoga kedepannya kami bisa terus kompak dan mengikuti rangkaian demi rangkaian kegiatan dengan baik.
+
+## Harapan Kuliah
+Bisa mengikuti mata kuliah dengan baik, menang banyak lomba,memiliki banyak relasi, IPK 4.00, lulus 3,5 tahun de ngan CUMLAUDE.
